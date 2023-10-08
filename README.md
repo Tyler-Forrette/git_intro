@@ -1,1 +1,2 @@
 Tyler Forrette
+forrettt@oregonstate.edu
